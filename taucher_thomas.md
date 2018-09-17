@@ -1,2 +1,2 @@
 ## Thomas Taucher
-|17yo|student and programer
+17yo|student at HTL-Weiz|programer with skills
